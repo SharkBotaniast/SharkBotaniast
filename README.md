@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @SharkBotaniast
+- 👀 I’m interested in strategy based video games, anime, and working on electronics.
+- 🌱 I’m currently learning cyber security
+- 💞️ I’m looking to collaborate on Anything that is needed or suits your interest.
+- 📫 You can contact me by Discord "VGC SharkBotaniast#8301".
